@@ -106,7 +106,7 @@ improve!
 
 ### Morgan
 
-![This is fine, everything is fine GIF][https://media.giphy.com/media/VGWewGpkkomPRbz2hj/giphy.gif]
+![This is fine, everything is fine GIF](https://media.giphy.com/media/VGWewGpkkomPRbz2hj/giphy.gif)
 
 ### Dima
 
