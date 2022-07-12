@@ -43,7 +43,7 @@ improve!
 
 ### Chris
 
-
+![Yep](https://media2.giphy.com/media/NEvPzZ8bd1V4Y/giphy.gif?cid=ecf05e47645d2303c975e105ae73465de086a6cac2dcf393&rid=giphy.gif&ct=g)
 
 ### Telma
 
