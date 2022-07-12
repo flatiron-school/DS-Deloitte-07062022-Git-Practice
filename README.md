@@ -30,14 +30,15 @@ improve!
 
 ### Hannah
 
-
+![Gif of how I'm feeling](https://media4.giphy.com/media/TGagqsMECv6nIDyh5L/giphy.gif?cid=ecf05e47ct4cjqmcpojg1n5bsf2d443h0nntk8hbwe1icjjd&rid=giphy.gif&ct=g)
 
 ### Reece
 
-
+![How I am Feeling GIF](https://giphy.com/clips/therokuchannel-the-roku-channel-kevin-hart-confessions-from-NdODrzFYMhRtlaZwWp)
 
 ### Ryan
 
+![Puppy](https://media.giphy.com/media/ZFFVNwIbjsKtP3lHYK/giphy.gif)
 
 
 ### Chris
@@ -53,8 +54,7 @@ improve!
 
 
 ### Krystal
-
-
+![Krystalll GIF](https://media.tenor.com/images/d6f9560d7bf4cc39b630595050702215/tenor.gif)
 
 ### Augusth
 
@@ -65,7 +65,7 @@ improve!
 
 
 ### Colton
-
+![Dog GIF](https://th.bing.com/th/id/R.2ba1c4261d74a7240a109864d8635b5b?rik=na0Gbc9%2fZPF4Mw&riu=http%3a%2f%2fviralcircus.com%2fwp-content%2fuploads%2f2013%2f12%2ftumblr_mqiythizq71sb76i4o1_500.gif&ehk=bg8pddddiRXGfgfTQ2tn9hrH2ES0Zwi7CXOd94d%2b1S4%3d&risl=&pid=ImgRaw&r=0)
 
 
 ### Nate
@@ -78,11 +78,11 @@ improve!
 
 
 ### Thomas
-
+![Tom Brady GIF](https://media1.tenor.com/images/28b033c82d9fd276b91cca237a51a41d/tenor.gif?itemid=8228986)
 
 
 ### Adam
-
+![We Da Best!!!!](https://c.tenor.com/jJ9L5LJeUQAAAAAC/dj-khaled-we-da-best.gif)
 
 
 ### Danish
@@ -91,14 +91,14 @@ improve!
 
 ### Trevor
 
-
+![Ah Ah ah ah staying alive, staying alive] https://64.media.tumblr.com/ce7130a1ad7e9fa3ed8df126b5675f74/427f8ae444f653c7-b5/s500x750/26c169c4a02f5ddfcbaac56d0ffd59695b025a9d.gifv
 
 ### Ian
 
 ![Bob Ross](https://media.giphy.com/media/rYEAkYihZsyWs/giphy.gif)
 
 ### Hope
-
+https://gifimage.net/wp-content/uploads/2017/10/mind-gif.gif
 
 
 ### Leo
@@ -107,6 +107,7 @@ improve!
 
 ### Morgan
 
+![This is fine, everything is fine GIF](https://th.bing.com/th/id/R.0b7f69b7bd529d2acfb7fbdc338b1d35?rik=rsORvKJrej7XJQ&riu=http%3a%2f%2fwww.newcollege.utoronto.ca%2fwp-content%2fuploads%2f2017%2f03%2f04-fine-400w.gif&ehk=WDfFQX7LotJwMpm8IMflFWR%2b4t7XPLAXOyAstwwBtcA%3d&risl=&pid=ImgRaw&r=0)
 
 
 ### Dima
@@ -115,7 +116,7 @@ improve!
 
 ### Landon
 
-
+![dealing with dad jokes](https://user-images.githubusercontent.com/108957599/178589945-fb37b437-faa1-437d-9361-2f3258182f76.gif)
 
 ### Alex W.
 ![Bad Jokes GIF](https://media0.giphy.com/media/Oq1fhM7WISYJ65Vsze/giphy.gif?cid=ecf05e478it7ux48u1isrny36rf5kjlg9mh3drjfoe41beqz&rid=giphy.gif&ct=g)
