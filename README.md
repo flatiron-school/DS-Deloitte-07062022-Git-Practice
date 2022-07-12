@@ -34,7 +34,7 @@ improve!
 
 ### Reece
 
-![How im feeling](https://giphy.com/clips/therokuchannel-the-roku-channel-kevin-hart-confessions-from-NdODrzFYMhRtlaZwWp)
+![How Im feeling](https://giphy.com/clips/therokuchannel-the-roku-channel-kevin-hart-confessions-from-NdODrzFYMhRtlaZwWp)
 
 ### Ryan
 
