@@ -53,8 +53,7 @@ improve!
 
 
 ### Krystal
-
-
+![Krystalll GIF](https://media.tenor.com/images/d6f9560d7bf4cc39b630595050702215/tenor.gif)
 
 ### Augusth
 
