@@ -94,7 +94,7 @@ improve!
 
 ### Ian
 
-
+![Bob Ross](https://media.giphy.com/media/rYEAkYihZsyWs/giphy.gif)
 
 ### Hope
 
@@ -117,3 +117,4 @@ improve!
 
 
 ### Alex W.
+![Bad Jokes GIF](https://media0.giphy.com/media/Oq1fhM7WISYJ65Vsze/giphy.gif?cid=ecf05e478it7ux48u1isrny36rf5kjlg9mh3drjfoe41beqz&rid=giphy.gif&ct=g)
