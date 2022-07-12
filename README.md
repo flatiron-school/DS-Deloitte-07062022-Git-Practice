@@ -38,7 +38,7 @@ improve!
 
 ### Ryan
 
-![Puppy](https://media.giphy.com/media/ZFFVNwIbjsKtP3lHYK/giphy.gif)
+![Puppy](https://viralapk.com/27-funniest-tweets-of-the-day-to-change-your-mood/)
 
 
 ### Chris
