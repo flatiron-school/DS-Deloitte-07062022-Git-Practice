@@ -26,7 +26,7 @@ improve!
 
 ### Nick
 
-![Heeeeyyyyy GIF](https://media0.giphy.com/media/3o7WIwZlXWAwKluOaI/…t7cjt4r1te4xt1nx6mfjr6e1x7nybi&rid=200w.webp&ct=g)
+![I Just Wanna Dance GIF](https://media0.giphy.com/media/3o7WIwZlXWAwKluOaI/200w.gif?cid=ecf05e47ndwi1p6qnnt7cjt4r1te4xt1nx6mfjr6e1x7nybi&rid=200w.gif)
 
 ### Hannah
 
@@ -95,7 +95,7 @@ improve!
 
 ### Ian
 
-
+![Bob Ross](https://media.giphy.com/media/rYEAkYihZsyWs/giphy.gif)
 
 ### Hope
 
