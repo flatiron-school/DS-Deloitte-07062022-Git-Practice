@@ -51,7 +51,7 @@ improve!
 
 ### Alex D.
 
-
+![I'm so tired](https://media3.giphy.com/media/nqS1Eikkw2Lsc/giphy.gif?cid=790b7611498b0d3261f27515223b8e650d93b43260291465&rid=giphy.gif&ct=g)
 
 ### Krystal
 ![Krystalll GIF](https://media.tenor.com/images/d6f9560d7bf4cc39b630595050702215/tenor.gif)
@@ -62,7 +62,7 @@ improve!
 
 ### Enoch
 
-
+![Hungry GIF](https://media.giphy.com/media/m225vjrXFvEevNormi/giphy.gif)
 
 ### Colton
 ![Dog GIF](https://th.bing.com/th/id/R.2ba1c4261d74a7240a109864d8635b5b?rik=na0Gbc9%2fZPF4Mw&riu=http%3a%2f%2fviralcircus.com%2fwp-content%2fuploads%2f2013%2f12%2ftumblr_mqiythizq71sb76i4o1_500.gif&ehk=bg8pddddiRXGfgfTQ2tn9hrH2ES0Zwi7CXOd94d%2b1S4%3d&risl=&pid=ImgRaw&r=0)
@@ -91,7 +91,7 @@ improve!
 
 ### Trevor
 
-![Ah Ah ah ah staying alive, staying alive] (https://64.media.tumblr.com/ce7130a1ad7e9fa3ed8df126b5675f74/427f8ae444f653c7-b5/s500x750/26c169c4a02f5ddfcbaac56d0ffd59695b025a9d.gifv)
+![Ah Ah ah ah staying alive, staying alive](https://64.media.tumblr.com/ce7130a1ad7e9fa3ed8df126b5675f74/427f8ae444f653c7-b5/s500x750/26c169c4a02f5ddfcbaac56d0ffd59695b025a9d.gif)
 
 ### Ian
 
