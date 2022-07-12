@@ -114,7 +114,7 @@ https://gifimage.net/wp-content/uploads/2017/10/mind-gif.gif
 
 ### Landon
 
-
+![dealing with dad jokes](https://user-images.githubusercontent.com/108957599/178589945-fb37b437-faa1-437d-9361-2f3258182f76.gif)
 
 ### Alex W.
 ![Bad Jokes GIF](https://media0.giphy.com/media/Oq1fhM7WISYJ65Vsze/giphy.gif?cid=ecf05e478it7ux48u1isrny36rf5kjlg9mh3drjfoe41beqz&rid=giphy.gif&ct=g)
