@@ -34,7 +34,7 @@ improve!
 
 ### Reece
 
-
+![How I am Feeling GIF](https://giphy.com/clips/therokuchannel-the-roku-channel-kevin-hart-confessions-from-NdODrzFYMhRtlaZwWp)
 
 ### Ryan
 
@@ -42,7 +42,7 @@ improve!
 
 ### Chris
 
-
+![Yep](https://media2.giphy.com/media/NEvPzZ8bd1V4Y/giphy.gif?cid=ecf05e47645d2303c975e105ae73465de086a6cac2dcf393&rid=giphy.gif&ct=g)
 
 ### Telma
 
@@ -53,8 +53,7 @@ improve!
 
 
 ### Krystal
-
-
+![Krystalll GIF](https://media.tenor.com/images/d6f9560d7bf4cc39b630595050702215/tenor.gif)
 
 ### Augusth
 
@@ -77,11 +76,11 @@ improve!
 
 
 ### Thomas
-
+![Tom Brady GIF](https://media1.tenor.com/images/28b033c82d9fd276b91cca237a51a41d/tenor.gif?itemid=8228986)
 
 
 ### Adam
-
+![We Da Best!!!!](https://c.tenor.com/jJ9L5LJeUQAAAAAC/dj-khaled-we-da-best.gif)
 
 
 ### Danish
