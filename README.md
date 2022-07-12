@@ -93,7 +93,7 @@ improve!
 
 
 ### Ian
-
+![Bob Ross GIF](https://media.giphy.com/media/rYEAkYihZsyWs/giphy.gif)
 
 
 ### Hope
