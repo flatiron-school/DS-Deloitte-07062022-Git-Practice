@@ -90,7 +90,7 @@ improve!
 
 ### Trevor
 
-![Ah Ah ah ah staying alive, staying alive] (https://64.media.tumblr.com/ce7130a1ad7e9fa3ed8df126b5675f74/427f8ae444f653c7-b5/s500x750/26c169c4a02f5ddfcbaac56d0ffd59695b025a9d.gif)
+![Ah Ah ah ah staying alive, staying alive](https://64.media.tumblr.com/ce7130a1ad7e9fa3ed8df126b5675f74/427f8ae444f653c7-b5/s500x750/26c169c4a02f5ddfcbaac56d0ffd59695b025a9d.gif)
 
 ### Ian
 
