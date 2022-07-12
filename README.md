@@ -10,7 +10,7 @@ address associated with your GitHub account - will be sent out at the start of t
 Session)
 2. Clone down this repository (**don't fork it!**) to a good place on your computer
 3. Create a new branch on your local repository (I recommend naming your branch after 
-yourself, so my branch will be named _William_)
+yourself; e.g., my branch would be named _Nick_)
 4. Find a GIF or image that summarizes how you're feeling today
 5. Use Markdown syntax and a text editor to add the GIF or image to this README.md file 
 **under your name**
@@ -26,7 +26,7 @@ improve!
 
 ### Nick
 
-![Oh Wow GIF](https://c.tenor.com/4DPkcnxDPHYAAAAC/oh-wow.gif)
+![Hey GIF]([https://c.tenor.com/4DPkcnxDPHYAAAAC/oh-wow.gif](https://c.tenor.com/yWVf2FLzOgcAAAAC/hi-forrest.gif))
 
 ### Hannah
 
