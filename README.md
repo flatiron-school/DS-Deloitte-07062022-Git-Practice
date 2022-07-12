@@ -58,7 +58,9 @@ improve!
 
 ### Augusth
 
-![sensational](https://media.tenor.com/Exwy.gif)
+
+![Future GIF](https://tenor.com/view/future-sensational-gif-7239640)
+
 
 ### Enoch
 
