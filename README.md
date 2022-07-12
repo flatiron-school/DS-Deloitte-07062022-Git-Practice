@@ -81,7 +81,7 @@ improve!
 
 
 ### Adam
-
+![We Da Best!!!!](https://c.tenor.com/jJ9L5LJeUQAAAAAC/dj-khaled-we-da-best.gif)
 
 
 ### Danish
