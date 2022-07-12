@@ -96,7 +96,7 @@ improve!
 ![Bob Ross](https://media.giphy.com/media/rYEAkYihZsyWs/giphy.gif)
 
 ### Hope
-
+https://gifimage.net/wp-content/uploads/2017/10/mind-gif.gif
 
 
 ### Leo
