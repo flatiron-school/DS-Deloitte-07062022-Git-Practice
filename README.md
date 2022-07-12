@@ -38,6 +38,7 @@ improve!
 
 ### Ryan
 
+![Puppy](https://media.giphy.com/media/ZFFVNwIbjsKtP3lHYK/giphy.gif)
 
 
 ### Chris
