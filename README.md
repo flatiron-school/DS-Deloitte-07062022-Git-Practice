@@ -73,6 +73,7 @@ improve!
 
 
 ### Thi
+![Happy Tuesday GIF](https://giphy.com/gifs/studiosoriginals-ZubZqIeSsZ60t0ID9l)
 
 
 
