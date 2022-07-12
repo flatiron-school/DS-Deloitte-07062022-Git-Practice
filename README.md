@@ -70,7 +70,7 @@ improve!
 
 ### Nate
 
-
+![Git GIF](https://media.giphy.com/media/VePtB3roynxfLYicuV/giphy.gif)
 
 ### Thi
 ![Happy Tuesday GIF](https://giphy.com/gifs/studiosoriginals-ZubZqIeSsZ60t0ID9l)
