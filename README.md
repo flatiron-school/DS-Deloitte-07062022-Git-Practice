@@ -97,7 +97,7 @@ improve!
 
 
 ### Hope
-
+https://gifimage.net/wp-content/uploads/2017/10/mind-gif.gif
 
 
 ### Leo
