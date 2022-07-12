@@ -114,6 +114,6 @@ improve!
 
 ### Landon
 
-
+![Dealing with dad jokes...](<iframe src="https://giphy.com/embed/33j5xL8ZgNfXy" width="480" height="217" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/maudit-maudit-christian-bale-about-me-33j5xL8ZgNfXy">via GIPHY</a></p>)
 
 ### Alex W.
