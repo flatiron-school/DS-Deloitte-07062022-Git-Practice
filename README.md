@@ -106,7 +106,8 @@ improve!
 
 ### Morgan
 
-![This is fine, everything is fine GIF](https://media.giphy.com/media/VGWewGpkkomPRbz2hj/giphy.gif)
+![This is fine, everything is fine GIF](https://th.bing.com/th/id/R.0b7f69b7bd529d2acfb7fbdc338b1d35?rik=rsORvKJrej7XJQ&riu=http%3a%2f%2fwww.newcollege.utoronto.ca%2fwp-content%2fuploads%2f2017%2f03%2f04-fine-400w.gif&ehk=WDfFQX7LotJwMpm8IMflFWR%2b4t7XPLAXOyAstwwBtcA%3d&risl=&pid=ImgRaw&r=0)
+
 
 ### Dima
 
@@ -118,4 +119,3 @@ improve!
 
 ### Alex W.
 ![Bad Jokes GIF](https://media0.giphy.com/media/Oq1fhM7WISYJ65Vsze/giphy.gif?cid=ecf05e478it7ux48u1isrny36rf5kjlg9mh3drjfoe41beqz&rid=giphy.gif&ct=g)
-
