@@ -26,7 +26,7 @@ improve!
 
 ### Nick
 
-![Heeeeyyyyy GIF](https://c.tenor.com/yWVf2FLzOgcAAAAC/hi-forrest.gif)
+![I Just Wanna Dance GIF](https://media0.giphy.com/media/3o7WIwZlXWAwKluOaI/200w.gif?cid=ecf05e47ndwi1p6qnnt7cjt4r1te4xt1nx6mfjr6e1x7nybi&rid=200w.gif)
 
 ### Hannah
 
@@ -34,7 +34,7 @@ improve!
 
 ### Reece
 
-
+![How I am Feeling GIF](https://giphy.com/clips/therokuchannel-the-roku-channel-kevin-hart-confessions-from-NdODrzFYMhRtlaZwWp)
 
 ### Ryan
 
@@ -53,8 +53,7 @@ improve!
 
 
 ### Krystal
-
-
+![Krystalll GIF](https://media.tenor.com/images/d6f9560d7bf4cc39b630595050702215/tenor.gif)
 
 ### Augusth
 
@@ -77,11 +76,11 @@ improve!
 
 
 ### Thomas
-
+![Tom Brady GIF](https://media1.tenor.com/images/28b033c82d9fd276b91cca237a51a41d/tenor.gif?itemid=8228986)
 
 
 ### Adam
-
+![We Da Best!!!!](https://c.tenor.com/jJ9L5LJeUQAAAAAC/dj-khaled-we-da-best.gif)
 
 
 ### Danish
@@ -93,8 +92,8 @@ improve!
 
 
 ### Ian
-![Bob Ross GIF](https://media.giphy.com/media/rYEAkYihZsyWs/giphy.gif)
 
+![Bob Ross](https://media.giphy.com/media/rYEAkYihZsyWs/giphy.gif)
 
 ### Hope
 
@@ -117,3 +116,4 @@ improve!
 
 
 ### Alex W.
+![Bad Jokes GIF](https://media0.giphy.com/media/Oq1fhM7WISYJ65Vsze/giphy.gif?cid=ecf05e478it7ux48u1isrny36rf5kjlg9mh3drjfoe41beqz&rid=giphy.gif&ct=g)
