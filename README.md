@@ -26,7 +26,7 @@ improve!
 
 ### Nick
 
-![I Just Wanna Dance GIF](https://media0.giphy.com/media/3o7WIwZlXWAwKluOaI/200w.gif?cid=ecf05e47ndwi1p6qnnt7cjt4r1te4xt1nx6mfjr6e1x7nybi&rid=200w.gif)
+![I Just Wanna Go to Bed GIF](https://c.tenor.com/83WX4PMrENIAAAAM/spongebob-mr-krabs.gif)
 
 ### Hannah
 
