@@ -26,7 +26,7 @@ improve!
 
 ### Nick
 
-![Hey GIF]([https://c.tenor.com/4DPkcnxDPHYAAAAC/oh-wow.gif](https://c.tenor.com/yWVf2FLzOgcAAAAC/hi-forrest.gif))
+![Hey GIF](https://c.tenor.com/yWVf2FLzOgcAAAAC/hi-forrest.gif)
 
 ### Hannah
 
