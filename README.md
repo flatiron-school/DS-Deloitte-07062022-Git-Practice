@@ -110,7 +110,7 @@ https://gifimage.net/wp-content/uploads/2017/10/mind-gif.gif
 
 
 ### Dima
-
+![euh huh? GIF](https://media.giphy.com/media/UeT0nnRnkuaUo/giphy.gif)
 
 
 ### Landon
